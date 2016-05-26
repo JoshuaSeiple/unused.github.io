@@ -1,1 +1,0 @@
-# JoshuaSeiple.github.io
